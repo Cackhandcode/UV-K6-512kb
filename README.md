@@ -17,3 +17,8 @@ I've seen some UV-K6 on aliexpress with 512kb memory advertised which I believe 
 or a simple way for someone like me?
 
 many thanks for reading
+
+not sure if this is the right way to tag some people who might be able to help.
+@Tunas1337
+@fagci
+@amnemonic
